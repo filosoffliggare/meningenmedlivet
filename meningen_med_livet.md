@@ -8,6 +8,4 @@
 
 4. -- " -- större grupp/grupper (socialt, människogrupp men även ekologiskt, med de loakal arter/miljö)
 
-5. -- " -- regional grupp/grupper
-
-6. -- " -- globalt socialt och ekologiskt - även framtida
+5. -- " -- globalt socialt och ekologiskt - även framtida
