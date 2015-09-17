@@ -1,5 +1,7 @@
 #Meningen med livet
 
+##De enkla meningarna
+
 1. Att överleva som levande varelse
 
 2. Att leva utifrån de förutsättningar och egenskaper en har som individ i den miljö en verkar i. Att använda dessa för överlevnad, välgång och framsteg.
