@@ -4,7 +4,7 @@
 
 2. Att leva utifrån de förutsättningar och egenskaper en har som individ i den miljö en verkar i. Att använda dessa för överlevnad, välgång och framsteg.
 
-3. Att leva i den familj/lilla grupp och delta i den gruppens/familjens överlevnad, välgång och framsteg
+3. Att leva i ens familj/lilla grupp och delta i verksamhet för gruppens/familjens överlevnad, välgång och framsteg
 
 4. -- " -- större grupp/grupper (socialt, människogrupp men även ekologiskt, med de loakal arter/miljö)
 
