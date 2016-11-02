@@ -8,5 +8,5 @@ Hon kan se ett äpple som faller till marken och därefter förstå vad som har 
 
 På samma sätt som när hon spelar tennis. Hon rör sin arm när hon ska slå till bollen och om hon är duktig så lyckas hon att slå bollen över nätet och inom motspelarens ruta. 
 
-Livet är för individen i stunden i stort sett uteslutande en obegriplighet. Det naturvetenskapen kan beskriva kan individens sinnen och mentala förmåga aldrig omfatta. Hon kan därför aldrig säga att livet saknar mening. Vad vet hon om det? Hur hon kan hon då säga att livet *har* mening? Av det enkla skälet att hon lever. Det, som hon inte begriper, har gjort att hon *faktiskt lever*. Vem är hon att betvivla det?
+###Livet är för individen i stunden i stort sett uteslutande en obegriplighet. Det naturvetenskapen kan beskriva kan individens sinnen och mentala förmåga aldrig omfatta mer än i mikroskopiska portioner. Hon kan därför aldrig säga att livet saknar mening. Vad vet hon om det? Hur hon kan hon då säga att livet *har* mening? Av det enkla skälet att hon lever. Det, som hon inte begriper, har gjort att hon *faktiskt lever*. Vem är hon att betvivla det?
 
