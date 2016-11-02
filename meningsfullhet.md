@@ -2,7 +2,7 @@ Liv är ju bara biologiska, kemiska, mekaniska reaktioner. Varför envisas vi me
 
 Vi gör det för att det känns bra. För att det rent av känns rimligt och rätt.
 
-För om vi inte tror på någon "högre mening" kan vi i värsta fall känna att vi hellre bör avsluta vårt liv om vi räknat ut att vi faktiskt belastar tillvaron mer än vi tillför den.
+För om vi inte tror på någon "högre mening" kan vi i värsta fall känna att vi hellre bör avsluta vårt liv om vi räknat ut att vi faktiskt med krasst materiella mått belastar tillvaron mer än vi tillför den.
 
 "Meningsfullhet" kanske bara är den intellektuella tolkningen/beskrivningen av något som kommer av överlevnadsinstinkten som i sig är helt biologisk.
 
