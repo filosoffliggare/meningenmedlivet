@@ -1,4 +1,6 @@
-Liv är ju bara biologiska, kemiska, mekaniska reaktioner. Varför envisas vi med att tillföra det "meningsfullhet" utöver det? Vi gör det för att det känns bra. För att det rent av känns rimligt och rätt. För att utan den kan vi rent av känna att vi hellre bör avsluta vårt liv om vi känner att vi inte tillför något som vi kan beskriva med materiella termer.
+Liv är ju bara biologiska, kemiska, mekaniska reaktioner. Varför envisas vi med att tillföra det "meningsfullhet" utöver det? Vi gör det för att det känns bra. För att det rent av känns rimligt och rätt.
+
+För att om det inte finns någon "högre mening" kan vi känna att vi hellre bör avsluta vårt liv om vi tror att vi inte tillför något som vi kan beskriva med materiella termer.
 
 "Meningsfullhet" kanske bara är den intellektuella tolkningen/beskrivningen av något som kommer av överlevnadsinstinkten som i sig är helt biologisk.
 
