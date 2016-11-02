@@ -14,11 +14,11 @@ A: Nja, jag kan väl visst hävda att en människas liv inte har någon mening -
 
 B: Du kanske vill att myran ska påverka världen i större utsträckning, eller att en människa, kanske du själv, ska påverka världen mer än du ser att du gör. Men det är inte samma sak som att ditt liv, myrans liv, eller grässtråets liv saknar mening.
 
-Du kan helt enkelt inte begripa vad ditt liv har för större mening. Du är utelämnad till din skapare - som vi kanske kan beskriva som evolutionen fram till punkten av din tillblivelse. Denne skapare har uppenbart oerhört mycket större förmågor än du eftersom hen skapade dig. Och hen har nu skapat dig. Vad har du, med din mycket begränsade förmåga att förstå världen, för anledning att betvivla denne skapares avsikt med dig? Vem är du att betvivla evolutionen?
+###Du kan helt enkelt inte begripa vad ditt liv har för större mening. Du är utelämnad till din skapare - som vi kanske kan beskriva som evolutionen fram till punkten av din tillblivelse. Denne skapare har uppenbart oerhört mycket större förmågor än du eftersom hen skapade dig. Och hen har nu skapat dig. Vad har du, med din mycket begränsade förmåga att förstå världen, för anledning att betvivla denne skapares avsikt med dig? Vem är du att betvivla evolutionen?
 
 A: Men för evolutionen räknas ju bara överlevnad? Om jag är svag och behöver mycket hjälp så tillför jag ingenting för evolutionen.
 
-B: Hur kan du veta det? Hur kan du ha en aning om vad du i denna stund tillför. Vad du i framtiden kommer att tillföra evolutionen?
+B: Hur kan du veta att det är så med evolutionen Och hur kan du ha en aning om vad du i denna stund tillför och vad du i framtiden kommer att tillföra evolutionen?
 
 A: Jag kan ana. På samma sätt som jag anar att den skadade myran inte tillför något längre. Jag skulle kunna säga - kära myra - ditt liv belastar dina kompisar - det bästa vore att avsluta det.
 
