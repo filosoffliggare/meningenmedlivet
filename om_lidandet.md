@@ -18,4 +18,4 @@ Det är också en rimlig fråga. Men glöm då inte kroppens enorma förmåga at
 
 ###Det är en farlig tro
 
-Det är farligt om vi glömmer bort vårt förnuft, våra relationer med andra, vår vetenskap. Jag menar såklart inte att vi ska utelämna dem. Tvärtom är de, återigen urifrån individens perspektiv, en känsla av allt som jag inte kan sätta fingret på, men som får mig att hoppas på bättring. En känsla som, påstår jag, folk med all rätt kallar för Gud.
+Det är farligt om vi glömmer bort vårt förnuft, våra relationer med andra, vår vetenskap. Jag menar såklart inte att vi ska utelämna dem. Tvärtom är de, återigen urifrån individens perspektiv, en känsla av allt som jag inte kan sätta fingret på, men som får mig att hoppas på bättring. En, om än aldrig så liten, känsla av hopp, tacksamhet och tillit.
