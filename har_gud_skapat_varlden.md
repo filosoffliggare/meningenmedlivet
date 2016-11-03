@@ -22,4 +22,4 @@ Men min existens är inte desto mindre en makalöst komplex historia.
 
 Man kanske skulle kunna dra paralleller till beskrivningen "God of the gaps" som brukar användas i diskussioner om huruvida gud finns eller ej. Men luckorna, "the gaps", är då inte längre några krympande öar i den samlade naturvetenskapliga bilden av världen. Luckorna är tvärtom då allt det där enorma som min upplevelse just nu inte kan omfatta. 
 
-###Alltså - frågan Gud om har skapat världen eller ej beror helt på vilken kontext vi menar och vad vi menar med Gud.
+###Alltså - frågan Gud om har skapat världen eller ej beror helt på vilken kontext vi avser och vad vi menar med Gud.
