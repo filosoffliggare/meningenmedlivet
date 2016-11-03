@@ -1,8 +1,8 @@
-Människan är begränsad av sina sinnen och av sina kognitiva förmågor. Det är också enbart där, anser jag, som begreppet Gud är relevant.
+###Människan är begränsad av sina sinnen och av sina kognitiva förmågor. Det är också enbart där, anser jag, som begreppet Gud är relevant.
 
 Är inte detta helt oväsentligt? En flykt undan den verkliga frågan om Guds existens. Ett sätt att säga att allt det vi inte ser och förstår just nu är Gud. Vad hände med teodiceproblemet?
 
-Var är denne Gud när ett barn lider?
+###Var är denne Gud när ett barn lider?
 
 Barnet känner ett oerhört lidande. Det kanske inte finns någon bot. Det kanske har utsatts av lidande av någon annan människa. Hur kan en god Gud tillåta detta?
 
