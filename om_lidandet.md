@@ -15,3 +15,7 @@ Bönen blir ett sätt att skifta fokus.
 ###Vad ska vi med en sådan Gud till?
 
 Det är också en rimlig fråga. Men glöm då inte kroppens enorma förmåga att klara av svåra situationer, att bli frisk från sjukdomar, att läka sig själv. Vi kan förklara dem alla med medicinsk kunskap. Men det är inte det som är relevant för individen i stunden. Det som är relevant då är att "kroppen kan göra saker som jag inte ser eller förstår", alltså det som jag, i individens perspektiv, skulle beskriva som "Gud".
+
+###Det är en farlig tro
+
+Det är farligt om vi glömmer bort vårt förnuft, våra relationer med andra, vår vetenskap. Jag menar såklart inte att vi ska utelämna dem. Tvärtom är de, återigen urifrån individens perspektiv, en känsla av allt som jag inte kan sätta fingret på, men som får mig att hoppas på bättring. En känsla som, påstår jag, folk med all rätt kallar för Gud.
