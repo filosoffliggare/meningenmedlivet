@@ -16,4 +16,4 @@ Bönen blir ett sätt att skifta fokus.
 
 Det är också en rimlig fråga. Men glöm då inte kroppens enorma förmåga att klara av svåra situationer, att bli frisk från sjukdomar, att läka sig själv. Vi kan kanske förklara dem med medicinsk kunskap. Men det är inte det som är relevant för individen i stunden. Det som är relevant då är att "kroppen kan göra saker som jag inte ser eller förstår", och det som inte kroppen själv kan klara av kanske jag kan lösa med medicin, själv eller med hjälp av mina medmänniskor.
 
-Allt det som får mig att hoppas på bättring. En, om än aldrig så liten, känsla av hopp, tacksamhet och tillit. Vad är det? Kan vi inte helt enkelt tillåta oss att använda ord som människor har använt i alla tider. Ord som inte fungerar i naturvetenskaplig mening, men som för individen blir användbara och relevanta.
+Allt det som får mig att hoppas på bättring. En, om än aldrig så liten, känsla av hopp, tacksamhet och tillit. Vad är det? Kan vi inte helt enkelt tillåta oss att använda ord som människor har använt i alla tider. Ord som inte har någon relevans i naturvetenskaplig mening, men som för individen blir relevanta och användbara. 
