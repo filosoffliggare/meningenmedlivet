@@ -1,6 +1,6 @@
 "Tro på något om och endast om det finns förnuftiga skäl att hålla det för sant"
 
-"Jag tror på Gud." 
+Okej. Jag tror på Gud. 
 
 ---
 
