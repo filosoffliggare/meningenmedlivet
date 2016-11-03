@@ -7,8 +7,10 @@
 Vad är Gud? Jag definierar Gud som världens gode skapare.
 
 Varför finns det något som har skapat världen? Eftersom världen existerar.
+
 Varför är denne god? Eftersom den har skapat världen och eftersom världen fortsätter att existera.
-Och mer specifikt - Gud har skapat mig och Gud är god eftersom jag fortsätter att existera.
+
+Och mer specifikt - Gud har skapat mig eftersom jag existerar. Och Gud är god eftersom jag fortsätter att existera.
 
 ---
 
