@@ -12,6 +12,6 @@ Det "min Gud" då kan göra är enbart att ge ett perspektiv till lidandet. Min 
 
 Bönen blir ett sätt att skifta fokus.
 
-Vad ska vi med en sådan Gud till?
+###Vad ska vi med en sådan Gud till?
 
 Det är också en rimlig fråga. Men glöm då inte kroppens enorma förmåga att klara av svåra situationer, att bli frisk från sjukdomar, att läka sig själv. Vi kan förklara dem alla med medicinsk kunskap. Men det är inte det som är relevant för individen i stunden. Det som är relevant då är att "kroppen kan göra saker som jag inte ser eller förstår", alltså det som jag, i individens perspektiv, skulle beskriva som "Gud".
