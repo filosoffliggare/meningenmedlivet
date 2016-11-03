@@ -1,4 +1,4 @@
-Det var framför allt Jesus som använde namnet Fadern om Gud, till exempel i bönen Fader vår (Matteusevangeliet 6:9-13). Han ville på så sätt betona de kärleksfulla, innerliga och omsorgsfulla dragen hos Gud. Den allmänt accepterade kristna trosprincipen är att Jesus blev människa för att förklara vem Gud är, eftersom ingen någonsin sett Fadern (Johannesevangeliet 1:18). Enligt kristendomen får den troende vara Guds barn. (Wikipedia)
+*"Det var framför allt Jesus som använde namnet Fadern om Gud, till exempel i bönen Fader vår (Matteusevangeliet 6:9-13). Han ville på så sätt betona de kärleksfulla, innerliga och omsorgsfulla dragen hos Gud. Den allmänt accepterade kristna trosprincipen är att Jesus blev människa för att förklara vem Gud är, eftersom ingen någonsin sett Fadern (Johannesevangeliet 1:18). Enligt kristendomen får den troende vara Guds barn." (Wikipedia)*
 
 ###Var Jesus Guds son?
 
